@@ -1,1 +1,1 @@
-Algo va aquí
+Algo va aquí.
