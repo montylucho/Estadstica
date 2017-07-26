@@ -1,1 +1,1 @@
-Algo va aq
+Algo va aqu
